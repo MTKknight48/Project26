@@ -1,0 +1,1 @@
+This recipie conists of instructions and a list of materials that will ve used to cook Spinach Vaji. Spinach Vaji is a healthy and delicious meal that is easy to make and uses coomon materials that you can get at your local market market. Have fun, and enjoy!
